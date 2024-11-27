@@ -56,7 +56,7 @@
 
 ![Игровые Аппараты на Деньги](https://i.pinimg.com/originals/a9/29/6e/a9296ea1cf6a7c20a985e593451f0323.png)
 
-![Вращение Слотов](https://media.giphy.com/media/xT0xeJpnrWC4XWblEk/giphy.gif)
+![Вращение Слотов](https://media.giphy.com/media/3oEjI6SIIHBdRxXI40/giphy.gif)
 
 ## 🔍 Что Такое **Игровые Аппараты на Деньги**?
 
